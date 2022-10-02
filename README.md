@@ -1,1 +1,1 @@
-# justanomelet.com
+# omelet.com
